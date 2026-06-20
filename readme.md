@@ -4,6 +4,4 @@ Games about to launch:
 - Call of Duty Mordern Warfare 4
 - Wolverine
 
-
-
-Thank You Boi
+Jai Bajarang Bali.
